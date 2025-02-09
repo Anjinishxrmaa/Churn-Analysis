@@ -38,6 +38,5 @@ If you're interested in **data analytics, Power BI, or customer insights**, feel
 🔗 **LinkedIn:** [www.linkedin.com/in/anjinisharma](#)  
 📧 **Email:** [anjini2101@gmail.com](#)  
 
-I’d love to hear your thoughts, discuss improvements, or collaborate on future projects! 🚀  
 
 
